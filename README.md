@@ -1,1 +1,1 @@
-# [Projects](github-readme-stats)
+# [Projects](https://github.com/youngvly/STUDY/projects)
